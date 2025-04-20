@@ -66,7 +66,7 @@
 
 ## ```Coffee ☕```
 
-- [`SAWERIA`](https://saweria.co/zeeoneofc)
+- [`Dana`](082179230256)
 
 ## ```Thanks To```
 
